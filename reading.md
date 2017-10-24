@@ -14,3 +14,4 @@
 1. **_World of Warcraft: War Crimes@_** by Christie Golden; 400pp (08/04/2017)</br>
 1. **_How to Live on 24 Hours a Day_** by Arnold Bennett; 92pp (09/11/2017)</br>
 1. _The Three Theban Plays_ by Sophocles (tr. by Robert Fagles); 430pp (09/24/2017)</br>
+1. **_The Emperor's Soul@_** by Brandon Sanderson; 176pp (10/20/2017)</br>
