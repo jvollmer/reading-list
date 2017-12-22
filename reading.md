@@ -15,3 +15,4 @@
 1. **_How to Live on 24 Hours a Day_** by Arnold Bennett; 92pp (09/11/2017)</br>
 1. _The Three Theban Plays_ by Sophocles (tr. by Robert Fagles); 430pp (09/24/2017)</br>
 1. **_The Emperor's Soul@_** by Brandon Sanderson; 176pp (10/20/2017)</br>
+1. **_Getting Things Done: The Art of Stress-Free Productivity@_** by David Allen; 288pp (12/19/2017)</br>
