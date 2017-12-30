@@ -1,5 +1,7 @@
 1. **_Anthem+_** by Ayn Rand; 66pp (05/18/2016)</br>
 1. **_Sugar Crush+_** by Richard Jacoby; 256pp (06/02/2016)</br>
+1. _The Golem and the Jinni: A Novel@_ by Helene Wecker; 496pp (11/28/2016)</br>
+1. _Redshirts: A Novel with Three Codas@_ by John Scalzi; 320pp (12/24/2016)</br>
 1. _Scrappy Little Nobody@_ by Anna Kendrick; 304pp (12/31/2016)</br>
 1. _I, Justine: An Analog Memoir@_ by Justine Ezarik; 240pp (03/03/2017)</br>
 1. **_The Only Pirate at the Party@_** by Lindsey Stirling, Brooke S. Passey; 272pp (03/05/2017)</br>
