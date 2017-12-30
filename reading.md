@@ -3,6 +3,7 @@
 1. _Scrappy Little Nobody@_ by Anna Kendrick; 304pp (12/31/2016)</br>
 1. _I, Justine: An Analog Memoir@_ by Justine Ezarik; 240pp (03/03/2017)</br>
 1. **_The Only Pirate at the Party@_** by Lindsey Stirling, Brooke S. Passey; 272pp (03/05/2017)</br>
+1. _Norse Mythology@_ by Neil Gaiman; 304pp (03/11/2017)</br>
 1. **_Alcatraz vs. the Evil Librarians@_** by Brandon Sanderson; 320pp (05/23/2017)</br>
 1. **_A Journey to Victorious Praying_** by Bill Thrasher; 256pp (05/24/2017)</br>
 1. **_Alcatraz vs. the Scrivener's Bones@_** by Brandon Sanderson; 368pp (05/29/2017)</br>
