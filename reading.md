@@ -23,3 +23,4 @@
 1. **_Getting Things Done: The Art of Stress-Free Productivity@_** by David Allen; 288pp (12/19/2017)</br>
 1. **_Good Omens: The Nice and Accurate Prophecies of Agnes Nutter, Witch_** by Neil Gaiman, Terry Pratchett; 400pp (12/21/2017)</br>
 1. **_California Bones_** by Greg van Eekhout; 304pp (12/30/2017)</br>
+1. **_Jesus Christ is Perfect Theology_** by Bill Johnson; 76pp (05/19/2018)</br>
